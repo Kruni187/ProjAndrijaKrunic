@@ -1,1 +1,1 @@
-# ProjAndrijaKrunic
+# priprema
